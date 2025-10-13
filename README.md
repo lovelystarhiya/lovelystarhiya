@@ -1,4 +1,4 @@
-**following pt profiles only!! ⭐**
+**following back pt profiles only!!**
 
+![tumblr_acc794ac26029891f0934e60553579c3_7cb00c07_540](https://github.com/user-attachments/assets/e5db6fd3-c8a5-42af-b0e4-79483adb9b67)
 
-![chase-tdi (1)](https://github.com/user-attachments/assets/ac780e9b-7cd0-44eb-aa7e-dd2d3b781de7)
