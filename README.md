@@ -10,4 +10,4 @@ $${\color{#90b1b6} ⋆.˚ 𓇼}$$
 <p align="center">
 
 
-<i>used for ponytown only! github's values are not a reflection of my own. </i>
+<i>used for ponytown exclusively! </i>
