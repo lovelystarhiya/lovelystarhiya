@@ -10,4 +10,3 @@ $${\color{#90b1b6} ⋆.˚ 𓇼}$$
 <p align="center">
 
 
-<i>used for ponytown exclusively! </i>
